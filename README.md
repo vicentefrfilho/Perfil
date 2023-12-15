@@ -52,5 +52,5 @@ Tenho alguns Hobs como Tocar violão nos tempos livres e assistir series e filme
 <p align="center"> 
    <img alingn="center" src="https://profile-counter.glitch.me/vicentefrfilho/count.svg" /></p>
 <p align="center">
-Obrigado e volte sempre 😄
+Obrigado e volte sempre!👍😄
 </p>
